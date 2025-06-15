@@ -1,6 +1,6 @@
 # Hey there, I’m Raj Ahmed! 👋
 
-🎓 **Student** | Joining NIT/IIT/IISc very soon (2025 Batch)  
+🎓 **Student** | Joining NIT Trichy CSE (2025 Batch)   
 📈 **JEE Main 2025:** 99.963 percentile | Multiple Olympiad Qualifier  
 ♟️ Chess player | ☕ Coffee lover | 🧮 Math enthusiast
 
